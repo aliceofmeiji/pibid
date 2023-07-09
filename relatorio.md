@@ -80,9 +80,39 @@ trabalho. Discutimos e iremos iniciar um trabalho de reforço com
 alunos com dificuldade para recuperar os anos perdidos durante a
 quarentena da pandemia de Covid-19.
 
+No segundo mês, focamos nossos esforços em acompanhar alunos
+específicos dentro da sala de aula, e percebemos diversos casos
+que trabalho pode ser desenvolvido. Dentre eles, encontramos casos
+que podem ser divididos em três tipos, sendo eles alunos que não
+conseguiram acompanhar conteúdos recentes e por isso não estão
+conseguindo acompanhar conteúdos atuais por tal defasagem, alunos
+que não conseguem acompanhar a matemática em geral por uma defasagem
+na educação básica, e alunos que não conseguem compreender a
+matemática passada por precisar de acompanhamento mais dedicado e
+abordagens diferentes. Tais características não são mutuamente
+exclusivas.
+
+Iniciamos debates sobre táticas de ação e organização, que foram
+interrompidas por questões da nova linha da escola, contrária ao
+projeto de recuperação dos alunos, e mudamos nossos esforços para
+a construção comum de uma ata relacionando nossas experiências e
+reforçando a necessidade da continuação do projeto de recuperação
+de alunos, que deve ser adicionada ao projeto escrito enviado para
+a nova direção.
+
+Ao fim do semestre letivo, e durante o período de férias escolares,
+iniciamos a leitura do livro "Um convite à Educação Matemática
+Crítica" de Ole Skovsmose, construindo nossa formação como professores.
+
 # 5. Dimensões da iniciação à docência
 
-
+Durante os dois primeiros meses, tivemos diversas experiências
+construtivas para nossa docência, dentre elas, três se destacam:
+Análise da conjuntura escolar e da classe, análise da conjuntura
+dos alunos em específico e construção de novos métodos de ensino
+e acompanhamento, e construção coletiva como categoria de projetos
+que beneficiam nossa classe como bolsistas do PIBID e os alunos,
+mesmo em um ambiente de oposição.
 
 # 6. Reflexão
 
