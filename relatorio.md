@@ -151,6 +151,25 @@ Por outro lado, os momentos colaborativos deram mais espaço para todos
 mostrarem suas habilidades, mas desinteressou os mesmos estudantes que
 se destacaram.
 
+Durante os meses de setembro e outubro, iniciamos as preparações
+para os projetos da SEMAT, semana da matemática, no Instituto Federal
+que construímos junto com os alunos do PIBID. As discussões durante 
+as reuniões semanais ajudaram a planejar a execução dos projetos.
+
+Decidimos fazer dois projetos, ambos com o objetivo de trazer
+uma maior interação dos alunos com áreas da matemática que não são
+tratadas com frequência no ensino básico.
+
+O primeiro projeto introduzindo poliminós aos alunos, e o segundo
+projeto avançando o estudos de poliedros, que são brevemente tratados
+no ensino fundamental.
+
+Nossas escolhas sobre quem convidar para participar do projeto foram
+um meio termo entre os alunos mais interessados em matemática, e aqueles
+que mais beneficiariam do contato mais profundo com a matemática.
+
+Houve amplo interesse por todos os alunos participantes.
+
 # 6. Reflexão
 
 
