@@ -129,6 +129,28 @@ que realizamos e realizaremos durante o percurso do programa. Que se
 fazem mais importantes dada a nova linha da escola, e a função
 política que realizamos com os alunos.
 
+Após o recesso escolar, com o retorno das aulas, aprofundamos a prática
+dentro da sala de aula, trazendo diferentes materiais e experiências
+para os alunos, de acordo com o conteúdo sendo abordado, para trazer
+outras formas de compreensão para os alunos.
+
+Dentre os materiais pedagógicos abordados, um deles foram os círculos
+de frações, mostrando visualmente para os alunos outras maneiras de
+compreender frações, divisões, proporções, etc.
+
+Outro material abordado foram os jogos de divisão e resto, dando aos
+alunos uma experiência competitiva e outra colaborativa, com o
+objetivo de usar na prática os conceitos estudados, de divisão,
+resto, multiplicação, etc.
+
+Durante os momentos competitivos, certos alunos se destacaram, o que,
+enquanto dando uma experiência positiva a si mesmos, deixou os outros
+alunos se sentindo desconfortáveis.
+
+Por outro lado, os momentos colaborativos deram mais espaço para todos
+mostrarem suas habilidades, mas desinteressou os mesmos estudantes que
+se destacaram.
+
 # 6. Reflexão
 
 
